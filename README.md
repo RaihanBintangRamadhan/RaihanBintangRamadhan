@@ -4,4 +4,3 @@
 - 📖 Suka membaca apa yang bisa dibaca
 - ♟  Main catur tipis-tipis
 - 🥭 Mangifera devourer 
-- 
